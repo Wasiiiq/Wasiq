@@ -1,2 +1,2 @@
-# Wasiq Raheem
+# Wasiq Raheem chughtai.
 My first ever repository
